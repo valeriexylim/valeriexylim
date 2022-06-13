@@ -12,4 +12,7 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ...Google Maps
 - 😄 Pronouns: ...she/her
 - ⚡ Fun fact: ...i can juggle
--->
+
+**I love music, reading and hanging out with friends.**
+## Some Songs I am listening to atm! 
+![It's Not Living (If it's Not With You) - The 1975)] (https://images.app.goo.gl/CmvWEfoyqbSuaKNf6./image.png)
