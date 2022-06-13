@@ -15,4 +15,4 @@ Here are some ideas to get you started:
 
 **I love music, reading and hanging out with friends.**
 ## Some Songs I am listening to atm! 
-![It's Not Living (If it's Not With You) - The 1975)] (https://images.app.goo.gl/CmvWEfoyqbSuaKNf6./image.png)
+![It's Not Living (If it's Not With You) - The 1975)] (1975.png)
